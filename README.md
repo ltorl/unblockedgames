@@ -23,6 +23,7 @@ Get live unblocked links, support, and hang out with the community!
 * [PGIS](https://pgis.x10.mx/)
 * [zaka13](https://cdn.jsdelivr.net/gh/zaka13alt/history@latest/education2.0.svg)
 * [Bestspark](https://bestspark.org) - [discord](https://discord.gg/bestspark)
+* [Nexus](https://nexus-unblocked.lol)
 
 ---
 
